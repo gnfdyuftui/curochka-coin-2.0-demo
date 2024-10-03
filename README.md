@@ -1,0 +1,1 @@
+# curochka-coin-2.0-demo
